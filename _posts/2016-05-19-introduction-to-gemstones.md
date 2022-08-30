@@ -1,0 +1,241 @@
+---
+layout: post
+title: "Types of Gemstone"
+date:   2022-08-17 16:07:54 -0400
+categories: [ Education, Gemstones ]
+permalink: /jewelry/education/types-of-gemstones:output_ext
+<!-- image: assets/images/denisova-cave-bracelet.jpg -->
+featured: false
+hidden: false
+comments: false
+---
+
+<p>From the very dawn of civilization, man has been fascinated by brilliant, shiny, colorful shells, stones and crystals. Their possession made him more important than others. Gems have always been regarded as bringers of peace, prosperity and happiness.</p>
+
+<p>A couple of centuries ago, the terms 'Precious' and 'Semi-Precious' stones came into common use. Although there are many exceptions to this classification, these terms are still in use. For example, diamonds have always been considered precious stones, yet there are diamonds that sell for $100 a carat. On the other hand, there are garnets that sell in excess of $1,000 a carat and garnets have traditionally been considered semiprecious stones. For this reason, jewelers may often refer to gemstones other than diamond, as 'Colored Stones'.</p>
+
+<p>Traditionally, common gemstones are classified into two categories:</p>
+
+Precious StonesSemi-Precious Stones
+
+<h2>Precious Stones</h2>
+<p>Gemstones which are highly valuable for their beauty, hardness and rarity are known as precious stones. Precious stones are generally expensive in comparison to semi-precious stones. There are only four precious stones:</p>
+
+<h2>Diamond</h2>
+
+Diamond is described extensively in the Diamond Guide.
+
+<h2>Emerald</h2>
+
+Color | Emerald Green to Dark Green|
+Mohs Hardness Scale | 7.5 - 8|
+Mineral Class | Beryl|
+Source/Found | Columbia, Brazil, Zimbabwe, South Africa, Afghanistan, USA|
+
+<p>Emerald is a fascinating and beautiful gemstone. The name of this remarkable gemstone comes from Greek 'Smaragdos', meaning 'Green Stone'. It's beautiful green color, combined with its durability and rarity, makes it the one of the most valuable gemstones. Deep green is the most desired color in emeralds. The green color of this stone holds a mystic meaning in many cultures and religions.</p>
+
+<p>Although emeralds are notorious for their flaws, these gems have been held in high esteem since ancient times. Flawless stones are very uncommon, and are extremely valuable, sometimes even more than diamonds. Its hardness protects the stone, to a large extent, from scratches, but it may develop internal cracks if banged hard or if exposed to extreme temperature. Emeralds that were treated to mask internal flaws should never be cleaned with an ultrasonic jewelry cleaner, nor should they be washed with soap. These practices will remove the oil and expose the hidden internal flaws.</p>
+
+<h2>Ruby</h2>
+
+Color | Bright red, brownish-red, purplish-red, dark red|
+Mohs Hardness Scale | 9|
+Mineral Class | Corundum|
+Source/Found | Burma, Thailand, Sri Lanka and Tanzania|
+
+<p>Ruby is the red variety of the mineral corundum, one of the hardest minerals on Earth. Sapphire is also a variety. Corundum is the mineral form of aluminum oxide. Only red corundum is entitled to be called ruby, all other colors being classified as sapphires. The most prized tint is blood red or crimson known in the trade as 'pigeon's blood' red.</p>
+
+<p>The name of this rich and noble gemstone comes from Latin 'Ruber' for 'Red'. In Sanskrit, the ruby is called 'Ratnaraj', means 'the king of precious stones'. For thousands of years, the ruby has been considered one of the most valuable gemstones on Earth. It has everything a precious stone should have: magnificent color, excellent hardness and outstanding brilliance. In addition to that, it is an extremely rare gemstone, especially in its finer qualities. The most important thing about this precious stone is its color. The red color of the ruby is incomparable: warm and fiery. Transparent rubies of large sizes are even more rare than diamonds.</p>
+
+<p>The ruby is considered an excellent choice for the jewelry. Beyond its incomparably rich red hue, which alone might be enough attraction, the ruby is second only to the diamond for strength and durability. Although Ruby is a tough and durable gem, it is still subject to chipping and fracture if handled roughly.</p>
+
+<h2>Sapphire</h2>
+
+Color | Blue, Yellow, Green, White, Colorless, Pink, Orange, Brown and Purple|
+Mohs Hardness Scale | 9|
+Mineral Class | Corundum|
+Source/Found | Sri Lanka, Thailand, Burma, Australia, India, Brazil and Africa|
+
+<p>Sapphire is also a variety of the mineral Corundum and represents all the colors except red corundum, which is ruby. Its physical and chemical properties are virtually similar to properties of ruby. Blue is the main color of the sapphire, but this gemstone is also found in colors like green, orange, pink, gray, colorless, black, brown, and purple. The word 'Sapphire' in its plain context refers only to blue sapphire, unless a prefix color is specified. Sapphire with a color other than blue is often called a 'Fancy' in the gem trade. The sapphire gemstone symbolizes harmony, friendship and loyalty.</p>
+
+<p>Sapphire is the most precious blue gemstone. It is a most desirable gem due to its color, hardness, durability, and luster. The value of this gemstone depends on its size, color and transparency. Top-quality sapphires are extremely rare. Cutting this gemstone requires great skill and experience. It is the job of the cutter to orientate the raw crystals in such a way that the color is brought out to its best presentation. Both sapphires and rubies have been successfully and widely produced synthetically in laboratories. In appearance, chemical composition and hardness they are almost identical to the natural gems. France is the major production hub for synthetic corundum.</p>
+
+<p>The sapphire is also considered an excellent choice for jewelry. In terms of hardness and durability, it is second only to the diamond (and equal to the ruby). It can be worn every day as opposed to more fragile gemstones like the opal or topaz. Although sapphire is a hard and durable gem, it is still subject to chipping and fracture if handled very roughly.</p>
+
+
+<h2>Semi-Precious Stones</h2>
+<p>Gemstones that are valued for their beauty and not covered under any one of the four ‘precious stones’, diamond, emerald, ruby or sapphire, are known as semi-precious stones. Semi-precious stones are available in all price ranges from low to high. There are many semi-precious stones:</p>
+
+<h2>Alexandrite</h2>
+
+Color | Dark to Pale Green (color changes in different forms of light)|
+Mohs Hardness Scale | 8.5|
+Mineral Class | Chrysoberyl|
+Source/Found | Russia, Sri Lanka, Brazil, Burma, Madagascar, USA|
+
+<p>Alexandrite is a form of the mineral Chrysoberyl, discovered in 1830 in Russia and named after Czar Alexander II, who was then Crown Prince of Russia. This is a very attractive and rare stone, and therefore finely faceted Alexandrite above one carat is among the most expensive gemstones in the world, more rare than fine ruby, sapphire or emerald.</p>
+
+<p>The most sensational feature about this stone is its surprising ability to change its color under different forms of light. Green or bluish-green in daylight, red in candle light, green in fluorescent light and reddish-purple in standard electric (tungsten) light.</p>
+
+<h2>Amethyst</h2>
+
+Color | Purple, Pale lavender to deep reddish purple, bluish violet|
+Mohs Hardness Scale | 7|
+Mineral Class | Quartz|
+Source/Found | Sri Lanka, Brazil, Burma, Canada, East Africa, India, North America, Russia, Uruguay, Madagascar and Australia|
+
+<p>Amethyst is a variety of the Quartz family, colored by traces of manganese, titanium and iron. Deeper-colored amethysts are more highly valued. Rich purple has always been a rare and noble color. Amethyst’s name comes from Greek word 'Amethystos' mean 'Not Intoxicated' or ‘Not Drunken’. The amethyst is said to bring good luck and to radiate love. This brilliantly sparkling stone is the most valued gemstone from the quartz family.</p>
+
+<h2>Aquamarine</h2>
+
+Color | Blue, Sea-green|
+Mohs Hardness Scale | 7.5 - 8|
+Mineral Class | Beryl|
+Source/Found | Brazil, Madagascar, Russia, Afghanistan, India, Pakistan, Nigeria, Zambia, Mozambique and USA|
+
+<p>Aquamarine is a variety of the mineral Beryl. This is a fascinatingly beautiful gemstone found in colors like the light blue of the sky to the deep blue of the sea. The more intense the color of an aquamarine, the more value is put on it.</p>
+
+<p>Its name is derived from the Latin 'Aqua' (water) and 'Mare' (sea). Aquamarine is one of the most popular and best-known gemstones. Its hardness makes it very tough and protects it to a large extent from scratches. There is hardly any other gemstone in modern jewelry design which is refined in such a variety of ways as aquamarine.</p>
+
+<h2>Citrine</h2>
+
+Color | Light Yellow, Lemon Yellow, Amber-Brown, Brilliant Orange|
+Mohs Hardness Scale | 7|
+Mineral Class | Quartz|
+Source/Found | South America, Brazil, Madagascar, Argentina, Russia, Scotland and Spain|
+
+<p>Citrine is a variety of the mineral Quartz and is often mistakenly called ‘Topaz’. This radiant, lemony yellow gemstone gets its name from the French word ‘Citrin’, meaning ‘Yellow’. There are not many yellow gemstones in the world of jewels and the citrine fulfils everyone's color wishes, from lemon yellow to reddish brown, in an affordable price range.</p>
+
+<p>Citrine is known as a tough gemstone with good durability. To a large extent, citrine is insensitive to scratches and thus it is an excellent choice for everyday jewelry.</p>
+
+<h2>Garnet</h2>
+
+Color | Light Red, Violet, Red, White, Green, Yellow, Brown, Black|
+Mohs Hardness Scale | 6.5-7.5|
+Mineral Class | Quartz|
+Source/Found | Burma, Sri Lanka, South Africa, China, USA, Tanzania, Madagascar, India and Australia|
+
+<p>Garnet is a family of stones having many varieties differing in color and in their constituents. The name is derived from its resemblance in color and shape to the seeds of the pomegranate. This stone has a long history of use as a medicinal stone and was used for healing blood and lung diseases. The most common color of garnets ranges from light red to violet, but can also be white, green, yellow, brown and black.</p>
+
+<p>Garnet stones include the following varieties:</p>
+
+<ul>
+<li>
+<strong>Grossularite:</strong> Grossularite is generally olive green, but there are also yellow, red, brown and violet varieties.
+</li>
+<li>
+<strong>Pyrope:</strong> Pyrope is similar to Almandine, but is lighter in color and brighter, even though it is translucent. It is often mistaken for ruby.
+</li>
+<li>
+<strong>Almandine:</strong> Almandine is a deep velvety red and the most widely used in jewelry making. The best stones are those that are not too dark.
+</li>
+<li>
+<strong>Rhodolite:</strong> Rhodolite is half-way between Almandine and Pyrope, being of a rhododendron red color, and is the most prized of the garnets. The fire of top-quality rhodolite is excellent.
+</li>
+<li>
+<strong>Other varieties:</strong> Andradite, Essonite, Tsavorite, Spessartite, Melanite, Allochroite, Ouvarovite and Demantoid.
+</li>
+</ul>
+
+
+
+
+<h2>Iolite</h2>
+
+Color | Violet-Blue, Deep Blue, Light Blue-Gray, Yellow-White|
+Mohs Hardness Scale | 7 – 7.5|
+Mineral Class | Cordierite|
+Source/Found | India, Sri Lanka, Mozambique, Zimbabwe and Brazil|
+
+
+<p>The name Iolite comes from the Greek word 'Ion', which means ‘Violet’. Iolite is often confused with tanzanite because of its similarity in color. Generally, iolite is a deeper shade of violet, with hues ranging from deep blue, purple, lavender, and gray-blue.</p>
+
+<p>This gem was actually used as a navigation tool by Viking explorers. Thin pieces of iolite were cut and used as polarizing filter lenses. Looking through the lens, they could determine the exact position of the sun and use it to guide them to the New World and back.</p>
+
+<p>Iolite is relatively hard but should be protected from blows. With its attractive color and reasonable price, it may become a jewelry staple in the future.</p>
+
+<h2>Onyx</h2>
+
+Color |  Black, White, Black with White bands, Red, Brown|
+Mohs Hardness Scale | 6.5 - 7|
+Mineral Class | Quartz|
+Source/Found | Madagascar, India, Brazil, United States, Pakistan and Sri Lanka|
+
+<p>Onyx is a beautiful gemstone composed of chalcedony (a variety of quartz). This gemstone usually comes in white, black or black with white bands and it is generally dyed black to improve its color. The bands that are found on Onyx run parallel and are consistent. It is extremely similar to Agate, another variety of quartz. Agate bands are round or circular and are not consistent. Onyx that is available in a red, brown or reddish-brown color is known as Sardonyx.</p>
+
+<p>Onyx was very popular with the ancient Greeks and Romans. The name comes from the Greek word 'onyx', which means nail or claw. In fine jewelry, the black backdrop is often supplied by onyx. Black Onyx gemstones with white bands are generally used in cameos and beads.</p>
+
+<h2>Opal</h2>
+
+Color |  Black, White, Gray, Yellow, Red, Orange and Colorless|
+Mohs Hardness Scale | 5 - 6.5|
+Source/Found | Australia, Brazil, Mali, Japan, Russia, USA, Mexico|
+
+<p>Opal is a very popular gemstone, mainly due to its wonderful variety of rich and beautiful colors. One of the extraordinary features of this gemstone is called opalescence. Opalescence is a kind of light play that happens with certain high-quality stones. Light reflects and bounces around the very small structures of the stone, giving it a wonderful aura and sometimes iridescence.</p>
+
+<p>The name Opal is derived from three sources: Sanskrit ‘Upala’, Latin ‘Opalus’, and Greek ‘Opallios’. All three of these words mean the same thing – precious stone. The group of fine opals includes quite a number of wonderful gemstones. These gemstones are differentiated on the basis of the variety, place of occurrence, and color of the main body, into dark or black opal, white or light opal, milk or crystal opal, boulder opal, opal matrix, Mexican and fire opal.</p>
+
+<p>Opals come in many colors, including black, white, gray, yellow, colorless, orange and red. Red is considered the most popular and attractive color that Opal comes in. There are usually two types of red colors – cherry red and fire red. Fire red is usually the most popular and possibly the most expensive due to its wonderful hue.</p>
+
+<p>Australia is the major supplier of fine opals and almost 95 per cent of all opals come from Australian mines. Opal is made from sand and water. It has the same chemical formula as quartz with the addition of 3-10 % water content. Due to this reason, opals must be protected from harsh light and heat, which could dry it out and cause cracks. Opal is relatively less hard than many other stones and must be worn with caution and care taken to avoid chips or other breakage. Opals come in many attractive colors, shapes and sizes and are used on many types of ornamental jewelry including rings, earrings, brooches, charms, bracelets, etc.</p>
+
+<h2>Pearl</h2>
+
+Color |  White, White tinted with Cream, Pink, Yellow, Green, Blue, Brown, Purple, or Black.|
+Mohs Hardness Scale | 2.5 - 4.5|
+Source/Found | Persian Gulf, China Sea|
+
+<p>A Pearl is an organic gem, produced when certain mollusks, primarily oysters cover a foreign object with beautiful layers of nacre. A good-sized pearl can take between five to eight years to form, which is usually the entire life of the oyster or mollusk.</p>
+
+<p>There are two types of pearls: natural pearls, formed inside wild oysters, practically impossible to find nowadays, and cultured pearls in which the production of the pearl is artificially induced. For producing cultured pearls, shell beads are placed inside an oyster and the oyster is returned to the water. When the pearls are later harvested, the oyster has covered the bead with layers of nacre. The finest natural pearls are fished almost exclusively from the Persian Gulf and the China Sea, while the best cultivated ones come from Japan, Korea and more recently Australia. Fine natural pearls are much more expensive and more difficult to find than cultured pearls.</p>
+
+<p>Pearls are usually white, sometimes with a creamy or pinkish tinge, but may be tinted with yellow, green, blue, brown, purple, or black. Pearls are available in different shapes: round, semi-round, button, drop, pear, oval, baroque, and ringed. Perfectly round pearls are the rarest and most expensive. Pearl is a rare and living substance and should be treated with great care.</p>
+
+<h2>Peridot</h2>
+
+Color |  Yellow Green, Olive, Brownish Green|
+Mohs Hardness Scale | 6.5 - 7|
+Mineral Class |  Olivine|
+Source/Found | Australia, Mexico, Sri Lanka, South Africa, Tanzania, China, Burma, Arizona, USA, Pakistan, Afghanistan|
+
+<p>The Peridot is a very old but still very popular gemstone. It is a variety of the mineral olivine. The color of most gemstones is caused by traces of other elements, but the color of peridot is an integral part of its structure. Chemically, peridot is an iron-magnesium-silicate. The intensity of the color of the stone depends upon the amount of iron contained. The beauty of peridot is a result of extreme conditions. Peridot is formed deep within the earth under tremendous heat and pressure.</p>
+
+<p>This gemstone is in fact identified by three names, Peridot, Chrysolith and Olivin. ‘Peridot’ is derived from Greek word ‘Peridona’, which means ‘giving plenty’. The word ‘Chrysolith’ means ‘goldstone’ in Greek. It is one of the few stones that exist only in one color. The most beautiful peridot comes from Pakistan-Afghanistan border region. It is also found in Australia, Mexico, Sri Lanka, South Africa, Tanzania, China, Burma, Arizona and USA. Peridot is used in rings, earrings, pendants, bracelets.</p>
+
+<h2>Tanzanite</h2>
+
+Color |  Deep Blue, Ultramarine Blue, Light Violet-Blue, Purple|
+Mohs Hardness Scale | 6 - 7|
+Mineral Class |  Quartz|
+Source/Found | Tanzania|
+
+<p>Tanzanite is an extraordinary and beautiful gemstone. Tanzanite is a blue variety of the gemstone zoisite, discovered in 1967 at Merelani Hills in Tanzania. It is named after the East African state of Tanzania, the only place in the world where it has been found. Due to this reason, this stone is particularly highly prized.</p>
+
+<p>Tanzanite is a trichroic gem which displays three layers of color. The colors dark blue, green-yellow and red-purple can be seen. Nearly all tanzanite has been heat treated to generate the beautiful violet-blue color this stone is known for.</p>
+
+<p>Although Tanzanite is relatively new on the gemstone market, it has left its mark. Tanzanite is popular for its brilliance and is a widely distributed gemstone. At the same time, Tanzanite is a delicate gemstone and it should always be worn carefully. Never clean tanzanite in an ultrasonic cleaner or resize or repair a Tanzanite ring set without having the gem removed because the stone could shatter in the heat of a torch.</p>
+
+<h2>Topaz</h2>
+
+Color |  Blue, Brown, Green, Orange, Pink, Red, Yellow, White, Gold, Colorless|
+Mohs Hardness Scale | 8|
+Mineral Class |  Topaz|
+Source/Found | Brazil, Sri Lanka, Burma, Nigeria, USA, Australia, Madagascar and Mexico|
+
+<p>Topaz is a member of the Quartz family. This beautiful gemstone is most commonly found in a yellow color. A topaz turns a vivid blue when exposed to heat. Also, the Topaz is said to have the power of changing color when it’s near poison. The name topaz is derived from the Sanskrit word ‘Tapas’, meaning ‘Fire’.</p>
+
+<p>Although Topaz is considered to be a tough and durable gemstone it is not an invincible stone. It cracks and chips more easily than many other gemstones, and should be treated with care.</p>
+
+<h2>Tourmaline</h2>
+
+Color |  Black, Red, Pink, Blue, Green, Grey and Yellow|
+Mohs Hardness Scale | 7 – 7.5|
+Mineral Class |  Quartzite|
+Source/Found | Brazil, Sri Lanka, South Africa, Nigeria, Zimbabwe, Kenya, Tanzania, Mozambique, Madagascar, Pakistan, Afghanistan, USA|
+
+<p>Tourmalines are gemstones with deep brilliance and an incomparable variety of colors. These gemstones are mixed crystals of aluminum boron silicate with a complex and changing composition.</p>
+<p>The name tourmaline comes from the Singhalese words 'tura mali', means roughly 'stone with mixed colors'. Tourmalines with different colors have different names. For example, a tourmaline of an intense red is known as a 'rubellite', but if it changes color at a change in the light source then the stone is called pink or shocking pink tourmaline. Stones with two colors are known as bicolored tourmalines, and those with more than two are known as multicolored tourmalines.</p>
+
+<p>This gemstone has excellent wearability qualities and is easy to take care of. No two tourmalines are exactly alike. In the fascinating world of gemstones, the tourmaline has a very special place.</p>
+
+<p>Check out <a href="https://oliverjewelry.com" title="Oliver Schnoor Jewelry Artist">Oliver Jewelry</a> and browse their collection of <a href="https://oliverjewelry.com/handmade-gold-jewelry" title="Handmade 18k Gold Jewelry with Gemstones">Handmade 18k Gold Jewelry with Gemstones</a> and find the perfect piece of jewelry.</p>
